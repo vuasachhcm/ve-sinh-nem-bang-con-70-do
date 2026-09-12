@@ -1,4 +1,4 @@
-https://vuasachhcm.blogspot.com/2026/09/ve-sinh-nem-bang-con-70-do.html
+<img width="512" height="340" alt="image" src="https://github.com/user-attachments/assets/65f45539-07e5-4134-9545-10a1766fcb21" />
 
 🚨 VỆ SINH NỆM BẰNG CỒN 70°: ĐỪNG DÙNG BỪA! 😱 <br>
 
